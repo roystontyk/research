@@ -1,0 +1,5 @@
+Yes, the name Irene appears to be uncommon in Australia, particularly in recent times, after experiencing higher popularity in earlier periods.
+
+Historically, the name Irene, which is of Greek origin and means "peace," was quite popular, especially in the early to mid-20th century in many Western countries, including Australia. Data for New South Wales, Australia, shows its popularity declining significantly over the decades, moving from a higher rank in the mid-20th century to much lower ranks in recent years.
+
+The perceived uncommonness of Irene now aligns with broader trends in Australian baby names. While some names from the early 1900s have seen a recent resurgence, generally, there's an increasing diversity of names, meaning even the most popular names are not as dominant as they once were. Many names that were popular in the mid-20th century, like Irene, have seen their usage trail off significantly. This decline in popularity, after a period of being more common, contributes to it being perceived as an uncommon name today.
